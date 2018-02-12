@@ -1,3 +1,4 @@
+tl;dr: Bee needed a new stand for his laptop but can't spare the money for plywood right now. June made him one out of 3.5mm-thick cardboard boxes lying around.
 Bee needed a new stand for his laptop but can't spare the money for plywood right now. June made him one out of 3.5mm-thick cardboard boxes lying around.
 
 ---
